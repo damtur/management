@@ -26,8 +26,8 @@ I really like when you come to me. Even if you think it might be a bother, it’
 questions please don't hesitate to let me know. You can ask me anything and I really enjoy when you do. If you have any problem please don't assume I know that. Tell me so we can be on the same page.
 
 ## What you can expect from me
-I will ask questions. A lot. I assume that you know what you are doing and I'm here to shine the light into the right
-direction not to lead you by the hand.
+I will ask questions. A lot. Those questions will be challenging at times ... even uncomfortable, but I hope in a good way! I assume that you know what you are doing and I'm here to shine the light into the right
+direction not to lead you by the hand. 
 
 You can expect weekly 1 on 1 from me. During meetings, we will discuss your short and mid-term progress. From time to
 time we will also discuss your long-term goals. Those meetings are important to me and I'll make sure they will happen.
