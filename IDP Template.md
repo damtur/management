@@ -39,7 +39,10 @@ Discussed on 02 May 2019
 ... about 2–3 strengths that will help to guide to choose where the career can go to.
 
 ## Development Focus & Development Actions
-### Gold path - Vulnerable Manager
+### Gold path - Vulnerable Lead
+
+![Vulnerable Lead graphic](https://github.com/damtur/management/raw/master/VulnerableLead.png)
+
 An empathetic manager who cares about others. Someone who can talk about delicate topics and is not afraid to bring up feedback …
 
 ... about 1 paragraph to describe how a person who achieves the goal looks like.
