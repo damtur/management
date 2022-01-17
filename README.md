@@ -53,8 +53,8 @@ As it happens
 Public, I like Goalpost Recognition for sure :)
 
 ### What are your goals for this year? And for the next 3 months?
-I want to be a better manager. I want to achieve Senior level management ASAP. I also want to help my squad with daily
-tasks and want to be more involved in the bigger picture.
+I want to establish a fully functional team where everyone is safe to share their opinions. I also want to help my squad with daily
+tasks and want them to be more involved in the bigger picture.
 
 ### What do you need from your manager?
 Trust that I can do my job well and challenges so I can improve. I want to know that I'm represented well in the company
