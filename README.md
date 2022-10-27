@@ -35,14 +35,14 @@ time we will also discuss your long-term goals. Those meetings are important to 
 I will ask you to make commitments for yourself. You can expect me to hold you accountable for those. I feel that you
 know best what is good for you personally and professionally. If you say that you are going to do something I'll follow up.
 
-I'm always here for you. I’m available any time in the office, on slack, email or video during work hours. Other times
+I'm always here for you. I’m available any time in the office, on chat, email or video during work hours. Other times
 I’ll be less available, but I will take your call if there’s something urgent.
 
 I will try to build a strong relationship based on trust and understanding. It shouldn't be only about work, but about
 people and true connection.
 
 ## My answers to first 1:1 questions
-### How do you like feedback - slack, email, in person, etc?
+### How do you like feedback - chat, email, in person, etc?
 Just give it to me. Whatever feels the most natural to you works for me. I want feedback so much that the media doesn't
 matter that much. All feedback is welcomed.
 
